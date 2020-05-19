@@ -188,6 +188,7 @@
 
 ### <h1 align=left><font size = 3></font></h1> 
 
- ###### <h1 align=left>Please, do not hesitate to contact me. I hope I can be a good addition either to your company or network. I believe building network leads to inspiration and emulation.<font size = 1></font></h1> <h1 align=right>clemence.barnjak@gmail.com
+###### I hope I can be a good addition either to your company or network. I believe building network leads to inspiration and emulation. 
+Please, do not hesitate to **contact me** [Clémence Barnjak](https://www.linkedin.com/in/clémence-barnjak-342594a6/).
 
 <h1 align=left><font size = 3></font></h1> 
